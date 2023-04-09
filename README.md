@@ -2,6 +2,7 @@
 Chris Horkan and Isaac Frank
 
 Build 5 Data Story Draft:
+
 https://docs.google.com/document/d/1819FKMc4fbCGpfP-91D04XWIf42VOQcaQ1w7hPSdoiU/edit
 
 
